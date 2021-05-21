@@ -7,18 +7,18 @@ article_header:
   image:
     src: /images/1621234803521.jpg
 
-> There emerges from their bellies a drink, varying in colors, in which there is healing for people. Indeed in that is a sign for a people who give thought 
+> _There emerges from their bellies a drink, varying in colors, in which there is healing for people. Indeed in that is a sign for a people who give thought_
 > **Quaran 16:69**
 
 ## Did you know that milk and honey before bed can cause vivid dreams and even lucid dreams? 
 
 Milk contains amino acids such as tryptophan and melatonin that induces vivid dreaming and helps the user fall asleep faster. Honey also contains the same properties that helps our brains release melatonon and tryptophan. I love honey and I love dreaming so this sounds like the perfect drink for me to have before bed. I think perhaps I was a bee in my past life... :honeybee: 
 
-> "So I have come down to rescue them from the hand of the Egyptians and to bring them up out of that land into a good and spacious land, a land flowing with
-> milk and honey--the home of the Canaanites, Hittites, Amorites, Perizzites, Hivites and Jebusites."
+> _So I have come down to rescue them from the hand of the Egyptians and to bring them up out of that land into a good and spacious land, a land flowing with_
+> _milk and honey--the home of the Canaanites, Hittites, Amorites, Perizzites, Hivites and Jebusites_
 > **Exodus 3:8, NIV**
 
-## CONSTRUCTING THE MILK/HONEY DRINK:
+## Constructing the Milk/Honey Drink
 
 The first thing I did was to make sure to have my last meal 2 hours before going to bed and drinking my milk/honey mixture. This is to ensure that my body will produce and release the necessary tryptophan and melatonin while sleeping.
 
@@ -34,7 +34,7 @@ I am already a frequent dreamer and every night I can recall my dreams. My usual
 
 Another reason why I think it might not work is because of the honey. Most of the store-brand "honey" is just pathetic sugary corn syrup (yes I'm looking at you Billy Bees). The best type of honey I've had is raw honey and honeycombs from a local organic shop. Unfortunately for my milk/honey mixture I used a generic store brand honey. But it's still honey so perhaps it will do something. 
 
-## RESULTS OF DAY ONE:
+## Results of Day One
 
 That night I had a hard time falling asleep. I was in bed at 1:30am and it took me about 2 and a half hours to fall asleep. When I woke up in the morning, recalled having dreams. I had two long dreams that night. However the dreams are too personal and intimate to share on here. But they weren't any dreams out of the ordinary, I would say they are mundane dreams. If I were to make this drink again, I'd drink more milk or use organic raw honey. 
 
