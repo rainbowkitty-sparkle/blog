@@ -2,14 +2,13 @@
 title: Enlightment from Milk and Honey 
 tags: Lucid-Dreaming Experiment Diet 
 --- 
-
-> There emerges from their bellies a drink, varying in colors, in which there is healing for people. Indeed in that is a sign for a people who give thought 
-> **Quaran 16:69**
-
 article_header:
   type: cover
   image:
     src: /images/1621234803521.jpg
+
+> There emerges from their bellies a drink, varying in colors, in which there is healing for people. Indeed in that is a sign for a people who give thought 
+> **Quaran 16:69**
 
 ## Did you know that milk and honey before bed can cause vivid dreams and even lucid dreams? 
 
