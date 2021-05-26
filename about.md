@@ -18,8 +18,6 @@ titles:
 key: page-about
 ---
 
-Just say something about yourself. :+1:
+Feel free to ask me questions or even say Hello if you enjoy reading my posts. You may contact me at **rainbowkittysparkle@protonmail.com**
 
-{% highlight javascript %}
-(() => console.log('hello, world!'))();
-{% endhighlight %}
+I am a curious fella of everything that is other-worldly and esoteric. :ghost:
