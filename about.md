@@ -18,6 +18,7 @@ titles:
 key: page-about
 ---
 
+> ***Recognizing information is a treasure hunt. Search and follow the clues provided by life...***
+
 Feel free to ask me questions or even say Hello if you enjoy reading my posts. You may contact me at **rainbowkittysparkle@protonmail.com**
 
-I am a curious fella of everything that is other-worldly and esoteric. :ghost:
