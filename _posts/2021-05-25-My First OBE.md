@@ -1,6 +1,6 @@
 ---
-title: Out Of Body Experience - 1
-tags: personal OBE
+title: MY First OBE
+tags: Personal OBE
 --- 
 
 Dear readers, 
@@ -12,6 +12,11 @@ It was a successful OBE but a quite short one. It is still major progress. I hop
 Yours truly, 
 
 Rainbowkitty Sparkle 
+
+
+
+
+
 
 [false-awakening]: <https://en.wikipedia.org/wiki/False_awakening>
 [video]: <https://www.youtube.com/watch?v=YQjAIlFZWWc&t=4010s>
