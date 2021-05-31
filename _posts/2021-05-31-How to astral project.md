@@ -68,17 +68,17 @@ Each technique listed here should be performed for 3-5 seconds. If nothing works
 
 The techniques listed below are considered the best but you may chose to create your own if you wish to do so. 
 
-**Observing Images:** Observe blank space before the eyes for 3-5 seconds and try to locate recognizable images or symbols. Do not focus on the details. The images should be _experiences_. The purpose of this technique is to become apart of that surrounding and the image becomes very realistic until separation from the body is achievable. 
+- **Observing Images:** Observe blank space before the eyes for 3-5 seconds and try to locate recognizable images or symbols. Do not focus on the details. The images should be _experiences_. The purpose of this technique is to become apart of that surrounding and the image becomes very realistic until separation from the body is achievable. 
 
-**Swimmer's Technique:** Imagine vividly that you are swimming. Imagine making swimming motions with your arms, try to feel and recall the sensation of swimming. 
+- **Swimmer's Technique:** Imagine vividly that you are swimming. Imagine making swimming motions with your arms, try to feel and recall the sensation of swimming. 
 
-**Hand visualization:** Imagine vividly that you are rubbing your hands together. Recall the sensation, feeling and sound of your hands rubbing together. 
+- **Hand visualization:** Imagine vividly that you are rubbing your hands together. Recall the sensation, feeling and sound of your hands rubbing together. 
 
-**Imagine Moving:** Imagine vividly that you are doing some sort of physical activity. This can be running, pulling a rope or even doing a gym routine. 
+- **Imagine Moving:** Imagine vividly that you are doing some sort of physical activity. This can be running, pulling a rope or even doing a gym routine. 
 
-**Rotation:** Imagine your physical body rotating on an axis, similar to a rotisserie chicken or a swing set.
+- **Rotation:** Imagine your physical body rotating on an axis, similar to a rotisserie chicken or a swing set.
 
-**Phantom wiggling:** Imagine that you are trying to move some part of your body without moving a muscle. 
+- **Phantom wiggling:** Imagine that you are trying to move some part of your body without moving a muscle. 
 
 _Note: Intense vibrations are common when exiting the body. Remain calm and try not to panic or else your physical body will wakeup._
 
